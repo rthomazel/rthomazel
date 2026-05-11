@@ -20,7 +20,7 @@
 #               I like sweets, but not obsessed, dieted out of it. Untouchable favorite of all time GOAT is ice cream <3.
 #
 # thanks for visiting.
-# please have some sushi and ice cream on the house.
+# please have some sushi and ice cream on the house. :)
 
 ---------------==@@@@%@@%%@@@@@@@@@@@@@@@@@%%%%%#######%@@@@@@@@@@@@@@@@@@@@@@@%*---====*%%%%#%###@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@#%@@@@
 ================*@@@@%@%%%@%%%%%%%#################@@@@@@@@@@@@@@@@@@@@@@@@@@@@@%###+----===+%@@@@#%@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
